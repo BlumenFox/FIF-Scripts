@@ -1,0 +1,3 @@
+- just like how we romanticize “miles’s second quartet” or “early pixar,” we will eventually become nostalgic for particular eras of AI models
+- Think about formative models like 4o, Mythos
+- The discourse about “Opus 4.7 isn’t as good as 4.6” and “GPT 5.0 isn’t as good as 4.5”

@@ -1,0 +1,6 @@
+- P&P
+- lifeguard
+- Depressed person
+- Harry potter
+- Age of innocence
+- The scene in witcher season 3 where we watch the bard and Ciri make fun of Geralt and Yennefer is a good analogy for free indirect style like thid

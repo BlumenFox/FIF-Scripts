@@ -1,0 +1,1 @@
+In ancient society, law was a moral innovation (a moral technic). It’s basically the equivalent of writing down rules in the playground and then having everyone agree to them. There needs to be sanctity and theater for this to be possible. But that leaves us with the Judge in our heads and the idea that our choices have spiritual and narrative ramifications.

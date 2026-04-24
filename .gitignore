@@ -1,0 +1,12 @@
+# 1. Ignore everything in the vault
+/*
+
+# 2. But do NOT ignore the .gitignore file itself
+!/.gitignore
+
+# 3. And do NOT ignore the folder you want to share
+!/09. Social Media/
+
+# 4. If you have subfolders inside "09. Social Media", 
+# make sure Git can "see" into them
+!/09. Social Media/**
