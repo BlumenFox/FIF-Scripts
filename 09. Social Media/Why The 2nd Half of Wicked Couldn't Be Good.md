@@ -24,8 +24,13 @@ https://youtu.be/Trx6coOdEOs
 - fell in love with the musical when it was new
 - "it's not just making a movie, and it's not just singing songs, you gotta connect the dots, and then you gotta open the heart of it in order to connect with people"
 - the gray area between singing and acting
-- =="I have to tell them the story of the world"== - his sense of responsibility seeing his kids grow up
-- 
+- =="I have to tell them the story of the world"== - his sense of responsibility seeing his kids grow up. he wants them to believe in the horizon line that they can do whatever they want but be ready for things to be "scary out there"
+
+https://youtu.be/q5G0QDwu48Y
+- Chu: emphasizes that working together was critical for success
+- Chu: "movie one was only one half of a bigger story that we're ready to tell"
+- Erivo talks about "taking care of" the characters
+- Chu: "the temperature is up; we are no longer in school" =="in movie 1, we saw cracks of who they are to become"==
 
 # Big-Picture Notes
 
