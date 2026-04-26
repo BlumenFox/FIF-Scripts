@@ -1,3 +1,15 @@
+# Research
+https://www.cinemablend.com/interviews/wondered-whats-going-on-wicked-part-2-further-along-john-m-chu
+- sucks and has no information
+
+https://deadline.com/2025/12/wicked-for-good-production-design-nathan-crowley-interview-1236647948/
+
+> “The story takes off, and we go on these incredible epic journeys,” says Crowley. “We come back some years later, the Wizard’s building yellow brick roads and oppressing the landscape, so where has Elphaba gone?”
+
+This is a theme problem, not just some interesting brainstorming question. There's the thesis world (Elphaba's home life) and the antithesis world (the affluent world of Shiz and the Emerald City), so this new post–yellow brick road Oz isn't thematically clear.
+
+# Big-Picture Notes
+
 Fractal story: the outsider is abused by her family --> the outsiders are abused by society
 myth: the cosmological sins of society can be overcome by a weak outsider who is granted the power to redeem society via a higher power but then must sacrifice herself (except she doesn't die lol)
 
