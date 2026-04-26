@@ -19,6 +19,14 @@ https://www.theatlantic.com/culture/2025/11/wicked-for-good-jon-chu-director-int
 - This source attributes the difficulty of the "notoriously knotty second act" to the "messy" integration of Baum's *The Wonderful Wizard of Oz* 
 - Chu  says "it's not about going darker... it's going deeper"
 
+https://youtu.be/Trx6coOdEOs
+- "tender goodbye to an old friend"
+- fell in love with the musical when it was new
+- "it's not just making a movie, and it's not just singing songs, you gotta connect the dots, and then you gotta open the heart of it in order to connect with people"
+- the gray area between singing and acting
+- =="I have to tell them the story of the world"== - his sense of responsibility seeing his kids grow up
+- 
+
 # Big-Picture Notes
 
 Fractal story: the outsider is abused by her family --> the outsiders are abused by society
