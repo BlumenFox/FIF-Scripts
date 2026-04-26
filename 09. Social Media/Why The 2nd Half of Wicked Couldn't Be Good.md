@@ -36,12 +36,18 @@ https://youtu.be/q5G0QDwu48Y
 	- we want [Glinda and Elphaba] to be together but everything is against them
 	- "why wicked exists *is* Wicked For Good"
 - Bailey: "it's fascinating to play someone who's in a deep crisis"
-- 
 
 # Big-Picture Notes
 
-Fractal story: the outsider is abused by her family --> the outsiders are abused by society
-myth: the cosmological sins of society can be overcome by a weak outsider who is granted the power to redeem society via a higher power but then must sacrifice herself (except she doesn't die lol)
+- Fractal story: the outsider is abused by her family --> the outsiders are abused by society
+- myth: the cosmological sins of society can be overcome by a weak outsider who is granted the power to redeem society via a higher power but then must sacrifice herself (except she doesn't die lol)
+- all the actors are really likable, and they seem to have put their heart & soul into this. That kind of confirms that Wicked 2 didn't fail because of them. It had to be the specific bottleneck of what they were given. it's also stressful to imagine shitting on the movie seeing how much heart & soul they put into it
+
+# Dialectic 
+Make sure to push the dialectic forward and challenge myself. start with what I wanted the synthesis to be and go from there.
+
+1. thesis: the movie couldn't succeed because of how part 1 positions the thematic dialectic of the story (Elphaba has already transformed and rejected the antithesis world by the time she sings "Defying Gravity")
+2. antithesis: Yes, BUT ... what is it about a thematic dialectic that is make-or-break for a story? why (if at all) is theme important to the audience's meaning formation or emotional investment or even just general sense of whether a story is "good" ("for good" lol)
 
 # Schizo 2am bullet points
 
