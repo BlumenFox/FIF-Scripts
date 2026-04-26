@@ -30,7 +30,13 @@ https://youtu.be/q5G0QDwu48Y
 - Chu: emphasizes that working together was critical for success
 - Chu: "movie one was only one half of a bigger story that we're ready to tell"
 - Erivo talks about "taking care of" the characters
-- Chu: "the temperature is up; we are no longer in school" =="in movie 1, we saw cracks of who they are to become"==
+- Chu: 
+	- "the temperature is up; we are no longer in school" 
+	- =="in movie 1, we saw cracks of who they are to become"==
+	- we want [Glinda and Elphaba] to be together but everything is against them
+	- "why wicked exists *is* Wicked For Good"
+- Bailey: "it's fascinating to play someone who's in a deep crisis"
+- 
 
 # Big-Picture Notes
 
