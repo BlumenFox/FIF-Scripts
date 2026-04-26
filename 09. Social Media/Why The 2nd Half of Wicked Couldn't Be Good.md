@@ -1,6 +1,7 @@
 # Research
 https://www.cinemablend.com/interviews/wondered-whats-going-on-wicked-part-2-further-along-john-m-chu
 - sucks and has no information
+- misspells the director's name LOL
 
 https://deadline.com/2025/12/wicked-for-good-production-design-nathan-crowley-interview-1236647948/
 
@@ -12,11 +13,18 @@ This frames the thesis world of Wicked 2 as ostracization (self-imposed this tim
 
 ![[Pasted image 20260425192056.png]]
 
+https://www.theatlantic.com/culture/2025/11/wicked-for-good-jon-chu-director-interview/685000/
+- Paywalled, but the thesis of this piece seems to be that Chu took a conscious risk: "the sequel ... shifts massively in tone"
+- I'm glad the source pointed out that Wicked 1 "enter[ed] holding space into our cultural lexicon"
+- This source attributes the difficulty of the "notoriously knotty second act" to the "messy" integration of Baum's *The Wonderful Wizard of Oz* 
+- Chu  says "it's not about going darker... it's going deeper"
+
 # Big-Picture Notes
 
 Fractal story: the outsider is abused by her family --> the outsiders are abused by society
 myth: the cosmological sins of society can be overcome by a weak outsider who is granted the power to redeem society via a higher power but then must sacrifice herself (except she doesn't die lol)
 
+# Schizo 2am bullet points
 
 - the cosmological sin and karmic imbalance: Elphaba is mistreated as a child (harm is done to the innocent). her foundational desire is for acceptance, which she mischaracterizes as assimilation
 - the slim chance: Elphaba goes to Shiz—but only to accompany her sister
