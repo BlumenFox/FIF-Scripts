@@ -6,7 +6,11 @@ https://deadline.com/2025/12/wicked-for-good-production-design-nathan-crowley-in
 
 > “The story takes off, and we go on these incredible epic journeys,” says Crowley. “We come back some years later, the Wizard’s building yellow brick roads and oppressing the landscape, so where has Elphaba gone?”
 
-This is a theme problem, not just some interesting brainstorming question. There's the thesis world (Elphaba's home life) and the antithesis world (the affluent world of Shiz and the Emerald City), so this new post–yellow brick road Oz isn't thematically clear.
+This is a theme problem, not just some interesting brainstorming question. There's the thesis world (Elphaba's home life) and the antithesis world (the affluent world of Shiz and the Emerald City), so this new post–yellow brick road Oz isn't thematically clear. Her starting in a hideout is a logistical and proairetic solution precisely because it excises her from the body-world of the story (setting as "body paragraph").
+
+This frames the thesis world of Wicked 2 as ostracization (self-imposed this time) and the antithesis world as the temptation (acceptance via conformity) of Glinda's set-piece art deco apartment. But Elphaba has already rejected this temptation 
+
+![[Pasted image 20260425192056.png]]
 
 # Big-Picture Notes
 
