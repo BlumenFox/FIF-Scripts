@@ -1,2 +1,0 @@
-- the time in the frame rule that you have leftover is a “buffer” (if you get to the bus stop at 3:55 and the bus comes at 4, you have a 5min buffer)
-- You need to find all buffers in the system and what tasks must go sequentially
