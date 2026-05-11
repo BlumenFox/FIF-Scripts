@@ -52,7 +52,7 @@ Make sure to push the dialectic forward and challenge myself. start with what I 
 
 # Rants
 ## 2026-05-11
-Writers block SUCKS and why can I never figure out if it's "writers block" or "writer's block" it's because I'm a lame loser who is only writing this script as a vanity project and I'll never actually finish or film or publish and I feel self-conscious (another stupid hyphen, can't we just call it "selfconscious" by now, it should be calcified already) pushing this shit to GitHub, like, it's worse than AI slop because it's not even minimally engaging if I can't even get myself interested enough to sit down and overcome at a bare minimum the constant baseline anxiety of my failures as a writer that have nothing to do with some grand AI takeover and are really all just about me being so burned out and not finding the joy I used to find in writing and wondering if, hey, maybe the joy I thought I used to find was secretly just a trojan horse for the idea of being famous and thinking that if I pulled something off, that let me step briefly into the bloom of that bifurcated ideal me who is the famous author (fuck that guy by the way, he thinks he's so smug or cool or whatever) and 
+Writers block SUCKS and why can I never figure out if it's "writers block" or "writer's block" it's because I'm a lame loser who is only writing this script as a vanity project and I'll never actually finish or film or publish and I feel self-conscious (another stupid hyphen, can't we just call it "selfconscious" by now, it should be calcified already) pushing this shit to GitHub, like, it's worse than AI slop because it's not even minimally engaging if I can't even get myself interested enough to sit down and overcome at a bare minimum the constant baseline anxiety of my failures as a writer that have nothing to do with some grand AI takeover and are really all just about me being so burned out and not finding the joy I used to find in writing and wondering if, hey, maybe the joy I thought I used to find was secretly just a trojan horse for the idea of being famous and thinking that if I pulled something off, that let me ==step briefly into the bloom== of that bifurcated ideal me who is the famous author (fuck that guy by the way, he thinks he's so smug or cool or whatever) and 
 
 I completely lost my train of thought. But I did want to say that 
 
@@ -61,6 +61,18 @@ Holy shit, I just accidentally did a keyboard shortcut for a checkbox, what the 
 …æ…¬π“‘≠–
 
 Okay anyway what was I saying? "Step briefly into the bloom" is kind of cool. Maybe that can go in the script somewhere.
+
+I was also thinking in the shower about how I'm basically in the antithesis of my dialectic in terms of really focusing on form (3-act structure, dialectic, whatever)
+- what I'm doing seems to work in the short term but is clearly unsustainable
+- things gradually get worse until they nosedive toward a breaking point where I have to confront my most basic assumptions (like "I like writing because I am a writer")
+
+Actually… (look at that, I'm using the fuckin keyboard shortcut for ellipsis) "I like writing because I'm a writer" is a horrible stupid-person assumption
+
+Little Joel or Big Joel or whatever he goes by would've put one of his signature "uhhhs" before that, like, 
+
+> I like writing because I'm a writer is a … uh … horrible, stinky assumption (he loves "stinky")
+
+And I'm playing that game with myself of being salty that I can't write but also self-narrativizing that being salty is somehow part of the hero's journey, like, I explicitly said it was pa
 # Schizo 2am bullet points
 
 - the cosmological sin and karmic imbalance: Elphaba is mistreated as a child (harm is done to the innocent). her foundational desire is for acceptance, which she mischaracterizes as assimilation
