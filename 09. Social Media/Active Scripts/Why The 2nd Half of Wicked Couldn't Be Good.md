@@ -85,6 +85,12 @@ So … where does that leave the script? I do like the idea of the tributary plo
 Or is that vain, almost narcissistic, considering that the "gravity" she wanted to defy was societal pressure literally bringing her down (socioeconomically).
 
 The only thing bringing me down is... I went into that sentence without even considering that it would be hard to finish. Is it the ideal of being a writer? Is it the idea that writing can lead to some kind of salvation from my day-to-day life where I don't feel proud of or passionate about what I do, and that more or less acts as as floodgate or thrombus that prevents me from loving myself the way I did when I more freely/naively/optimistically/narcissistically thought that the novel I was working on was something I deserved to be proud of?
+
+Dumb fuckin novel. I feel like the REAL story of me wrangling with why Wicked 2 sucked is the story of trying to identify why my own novel lost steam.
+
+The problem is that it's a hard onramp to get an audience to be invested in that, especially considering that I'd need to explain at least *some* of my novel to show why it failed. Or do I? Maybe not.
+
+Anybody who clicks on a "Wicked 2 had to fail" video probably just wants a fun little factoid and some snarky jokes.
 # Schizo 2am bullet points
 
 - the cosmological sin and karmic imbalance: Elphaba is mistreated as a child (harm is done to the innocent). her foundational desire is for acceptance, which she mischaracterizes as assimilation
