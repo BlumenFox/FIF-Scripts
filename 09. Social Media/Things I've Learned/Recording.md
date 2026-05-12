@@ -2,3 +2,4 @@
 - Don't. Move. Your Body. It looks weird. Move your hands, but your body stays still and centered in the frame.
 - Check to make sure you're ACTUALLY recording
 - Some stuff matters, some stuff doesn't. Don't get optimization paralysis trying to set up iPad mirroring and all this crazy shit. Just make it look good and sound good, and be okay with a little inconvenience.
+- Top first, then bottom when you put the phone in the holder. Otherwise you'll damage the case 😢

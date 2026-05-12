@@ -3,7 +3,7 @@ NO AI was used for this script! AI can go FUCK itself!
 My goal here is to be a li'l spicy but also inspirational. And hopefully not lean out of the frame for this friccin iPhone that I've got mounted to a mic stand even though I have an expensive mirrorless camera because that "smartphone" look plays better on social media even though the camera control on my Apple Watch DOESN'T WORK and I have to lean around and tap the screen, and it's so fucking hot in this office but I can't have the fan on.
 
 - Hook: 99% of people when they have a problem ask the WRONG question.
-- Context: You want to lose weight, you want to start posting more on social media, you want to get better grades, whatever.
+- Context: Everyone wantso to lose weight, or start posting more on social media, or get better grades, whatever.
 - Drumroll: And everybody asks, "What should I do?" What workout program should I do, what diet, what camera should I buy to go viral on social media, you get the idea.
 - Payoff: But here's the thing. Don't ask what. Ask how. 
     b b nb b - Value shit: HOW can I get to the gym more consistently? HOW can I work healthier eating into my busy lifestyle? HOW can ... you get the idea.
