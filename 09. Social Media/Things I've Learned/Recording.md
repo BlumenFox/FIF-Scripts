@@ -3,3 +3,5 @@
 - Check to make sure you're ACTUALLY recording
 - Some stuff matters, some stuff doesn't. Don't get optimization paralysis trying to set up iPad mirroring and all this crazy shit. Just make it look good and sound good, and be okay with a little inconvenience.
 - Top first, then bottom when you put the phone in the holder. Otherwise you'll damage the case 😢
+- LOOK LOWER. Don't make eye contact with the camera lens—actually look straight ahead. I literally don't understand this, but it looks like you're making direct eye contact if you look straight ahead and NOT at the lens.
+- SPEAK FASTER… Or just, you know, speed up the audio in post.
