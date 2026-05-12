@@ -11,3 +11,7 @@
 # 4. Un-ignore Active Scripts and everything inside it
 !/09. Social Media/Active Scripts/
 !/09. Social Media/Active Scripts/**
+
+# 5. 😒-ignore Things I've Learned and everything inside it
+!/09. Social Media/Things I've Learned/
+!/09. Social Media/Things I've Learned/**

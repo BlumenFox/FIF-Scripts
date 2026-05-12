@@ -1,0 +1,2 @@
+- Your inflection has to be SUPER exaggerated for social media. Otherwise, you sound exhausted and depressed. You have to be like a cartoon character.
+- Don't. Move. Your Body. It looks weird. Move your hands, but your body stays still and centered in the frame.
