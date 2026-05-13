@@ -1,3 +1,4 @@
 - my friccin mic only records to the left channel, so need to take care of that before I go too crazy with mastering. You can't just downmix to mono in Davinci, you have to manually the audio on both tracks (lame)
 - do captions LAST after cutting out all the dead space
 - how the HELL do you add audio to Instagram reels (how do you rotate text in MS Paint?)
+- do all sound and color before chopping up the timeline
